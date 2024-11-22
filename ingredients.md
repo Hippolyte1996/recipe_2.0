@@ -1,3 +1,4 @@
+Enjoy my recipe!
 Ingredients for the Tomato tart recipe: 
 1. Store bought puff pastry 
 2. A few ripe tomatoes, preferably 4 or 5
@@ -6,3 +7,4 @@ Ingredients for the Tomato tart recipe:
 5. Salt and pepper 
 
 You can add any other toppings you would like such as cheese for some broiling!
+Let's begin!
